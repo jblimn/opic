@@ -1,4 +1,4 @@
-### Filler / Music
+## Filler / Music
 
 https://youtu.be/kfI2wOKhfvI?t=44
 
@@ -27,7 +27,7 @@ I could be having the worst day of my life.
 But I pop on that song (and uh) I just feel so great.
 
 
-Self Introduction 
+## Self Introduction 
 
 https://youtu.be/tiLY_fJQDj8?t=284
 
@@ -62,7 +62,7 @@ So, I went there.
 I'm gonna keep learning, Ok?
 And that's pretty much all I have to say about myself.
 
-루틴/일상 <현재>
+## 루틴/일상 <현재>
 
 https://www.youtube.com/watch?v=1jR0VN97Z3U&t=1317s
 
