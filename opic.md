@@ -9,7 +9,7 @@ https://youtu.be/kfI2wOKhfvI?t=44
 5. Um / Uh
 
 Q>
-What type of music do u like listening to?
+What type of music do u like listening to?  
 Plus, tell me about some singers or composers u like.
 
 A>
@@ -45,7 +45,7 @@ I am a totally addicted to coffee.
 (Well, u know) I already told u that I love coffee in my introduction..  
 (And um) what do I do? I drink coffee!  
 (u know) I usually go to Starbucks and they have the best Americano in the whole wide world!  
-
+  
 https://youtu.be/WL6JVx9e05c?t=99
 
 Hi, I'm Ryan.  
