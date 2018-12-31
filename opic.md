@@ -41,7 +41,7 @@ I am a coffee enthusiast.
 I am a totally addicted to coffee.  
 (And u know,) that's all u need to know about me.  
 
-<Connecting>
+<Connecting>  
 (Well, u know) I already told u that I love coffee in my introduction..  
 (And um) what do I do? I drink coffee!  
 (u know) I usually go to Starbucks and they have the best Americano in the whole wide world!  
