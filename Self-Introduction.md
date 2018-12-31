@@ -4,7 +4,7 @@ https://youtu.be/tiLY_fJQDj8?t=284
 
 Hi, I'm Ryan.  
 (um..) I don't really know what to tell you about myself.  
-But (Uh), these days I absolutely love coffee. I can't get enough of it.  
+(Uh.. OK, Here we go), these days I absolutely love coffee. I can't get enough of it.  
 (U know) I woke up, I drank some coffee.  
 Just before this test, I drank some coffee.  
 And right after the test, I'm sure u can guess what I will do.  
